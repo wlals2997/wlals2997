@@ -13,4 +13,4 @@
 
 wlals2997@naver.com
 
-[Notion](https://www.notion.so/Home-f06ef2263e58414dab122247f70eefb9)
+[Blog](https://minidevlog.tistory.com/)
